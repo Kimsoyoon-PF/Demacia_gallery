@@ -1,1 +1,0 @@
-# Demacia_gallery
